@@ -1,8 +1,8 @@
  --------------------- ⋆
 
-⠀✱ I'm *polkado-t*, but you can call me **Neptune!**         **⭛**
+⠀✱ I'm *polkado-t*, but you can call me **Vikki!**         **⭛**
 
-⠀⠀⠀⠀⠀✱ *I am a student using GitHub to download code*, I don't really make my own.
+⠀⠀⠀⠀⠀✱ *just a student with access to the internet..nothing interesting
 
 ⋆ ---------------------
 
